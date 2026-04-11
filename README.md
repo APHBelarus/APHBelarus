@@ -1,9 +1,7 @@
 <div align="center">
 <img src="Cute.gif"/>
 
-I GIVE UP ON MAKING THIS AESTHETIC IM DONE WITH THIS CODING BULLSHIT JUST CHECK OUT MY LINKS + I follow back if I think youre awesome
-
-ALSO NO I DID NOT UNFRIEND YOU IM JUST ON OFFLINE MODE CALM YOUR ASS DOWN
+Check out my Links + I DO NOT unfriend people Im just on OFFLINE MODE so calm your ass down
 
 **[LAST.FM](https://www.last.fm/user/maplehaven/) [STRAW](https://erzengel.straw.page/)**
 
