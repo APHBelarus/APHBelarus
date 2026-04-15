@@ -1,9 +1,7 @@
 <div align="center">
 <img src="Cute.gif"/>
 
-Check out my Links + I DO NOT unfriend people Im just on OFFLINE MODE so calm your ass down
-
-**[LAST.FM](https://www.last.fm/user/maplehaven/) [STRAW](https://erzengel.straw.page/)**
+**[LAST.FM](https://www.last.fm/user/maplehaven/)**
 
 <img src="Lith.gif"/>
 
