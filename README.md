@@ -1,7 +1,7 @@
 <div align="center">
 <img src="Cute.gif"/>
 
-**[Strawpage](https://erzengel.straw.page/)** **[Last.FM](https://www.last.fm/user/maplehaven/)**
+**[Strawpage](https://nothingleftbutfaith.straw.page/)** **[Last.FM](https://www.last.fm/user/maplehaven/)**
 
 <img src="Lith.gif"/>
 
